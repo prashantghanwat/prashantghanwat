@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @prashantghanwat
 - 👀 I’m interested in Hiring the best talent for fortune 500 companies..
 - 🌱 I’m currently Hiring ...
-- 💞️ I’m looking to collaborate on review your work
+- 💞️ I’m looking to collaborate and review your work
 
 
 <!---
